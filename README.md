@@ -5,7 +5,7 @@
 
 ---
 
-**[Vixion Studios](https://github.com/Vixion-Studios)** — Founder `2018–`  
+👑 **[Vixion Studios](https://github.com/Vixion-Studios)** · Founder `2018–`  
 
 🏆 FTC Paraná Regionals Control Award 2025 · Lead Programmer [@Ampharos #26940](https://ampharos-ftc.github.io/ftc/)
 
